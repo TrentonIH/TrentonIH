@@ -1,5 +1,5 @@
 # Welcome!
 
-I'm a 17 yo Junior from Missouri.
+I'm an 19 y/o from Missouri.
 
-Please visit https://atomickeith.github.io for extended information!
+Please visit https://trentonih.github.io for extended information!
